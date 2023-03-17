@@ -5,7 +5,6 @@
 
 - 📄 Know about my experiences [by viewing my CV!](https://pdfhost.io/v/6P0UtcSZP_CV_2)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
