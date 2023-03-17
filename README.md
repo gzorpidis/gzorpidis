@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **giorgos.zorpidis@outlook.com**
 
-- 📄 Know about my experiences [https://pdfhost.io/v/6P0UtcSZP_CV_2](https://pdfhost.io/v/6P0UtcSZP_CV_2)
+- 📄 Know about my experiences [by viewing my CV!](https://pdfhost.io/v/6P0UtcSZP_CV_2)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
